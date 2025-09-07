@@ -1,2 +1,0 @@
-çalışmıyo sebebini çözemedim.
-
